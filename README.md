@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yuvraj2503
-- 👀 I’m interested in ...new technologies, games and web devlopment.
+- 👀 Data enthusiast
 - 🌱 I’m currently learning ...web dev. and pursuing b.tech in cse-ai.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... MAIL- yuvrajsharma87650@gmail.com
